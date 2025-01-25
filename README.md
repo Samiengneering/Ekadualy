@@ -1,2 +1,0 @@
-# Ekadualy
-friendship
